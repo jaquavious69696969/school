@@ -1,2 +1,0 @@
-# school
-for school
